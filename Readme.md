@@ -27,5 +27,5 @@ Loyhadagi range(1: 10) joyida 1: keyin hohlagan son qo'yib ishlatsa bo'ladi
 
 Number: +9989 00 000 00 00
 
-Email: hudes342@gmail.com
+Email: ?????@gmail.com
 
